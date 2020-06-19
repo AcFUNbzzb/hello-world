@@ -2,4 +2,3 @@
 
 RE: ZERO - Starting Life in Another World
 
-The World!
